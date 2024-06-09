@@ -1,16 +1,13 @@
-## Hi there 👋
+## Karst Plateau
 
-<!--
-**karstplateau1/karstplateau1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Homestay in Ha Giang, Ha Giang motorbike rental, coffee and Electric car tour in Ha Giang, Ha Giang Loop Tour, Ha Giang Loop Tour From Hanoi
 
-Here are some ideas to get you started:
+- Address: 52 Le Tran Man, Cau Me village, Phuong Thien ward, Ha Giang City, Ha Giang province, Vietnam
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://karstplateau.com/
+
+https://www.pinterest.com/karstplateau1/
+
+https://vimeo.com/karstplateau1
+
+https://www.youtube.com/channel/UCJhesBvXN0lV-d6FG8lB9HQ
